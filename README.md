@@ -1,0 +1,1 @@
+# jujutsuinfinitevaluelist.github.io
