@@ -1,1 +1,1 @@
-# jujutsuinfinitevaluelist.github.io
+# simple value list cuz i was bored lmao
